@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="https://slotspot.ru">
+  <a href="https://lkhv.cc/184a">
     <img src="og-1win.jpg" alt="SlotSpot.ru — промокоды казино, бонусы и обзоры слотов" width="100%">
   </a>
 </p>
