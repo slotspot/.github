@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="[https://slotspot.ru/casinos/1win/promo-code.html](https://lkhv.cc/184a)" target="_blank" rel="noopener">
+  <a href="[https://lkhv.cc/184a]" target="_blank" rel="noopener">
     <img src="/profile/og-1win.jpg" alt="SlotSpot.ru — промокоды 1win" width="100%">
   </a>
 </p>
