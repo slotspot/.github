@@ -16,34 +16,32 @@ SlotSpot.ru — сайт для игроков: **промокоды казин�
 
 ## Популярные запросы (быстрый переход)
 - **Промокоды 1win**: https://slotspot.ru/casinos/1win/promo-code/  
-- **Бонус 1win**: https://slotspot.ru/casinos/1win/bonus/  
-- **Верификация 1win**: https://slotspot.ru/casinos/1win/verification/  
-- **Вывод денег 1win**: https://slotspot.ru/casinos/1win/withdrawal/  
-- **Зеркало 1win**: https://slotspot.ru/casinos/1win/mirror/  
-- **Отзывы 1win**: https://slotspot.ru/casinos/1win/reviews/  
+- **Бонус 1win**: [https://slotspot.ru/casinos/1win/bonus/  ](https://slotspot.ru/casinos/1win/promo-code/)
+- **Зеркало 1win**: [https://slotspot.ru/casinos/1win/mirror/  ](https://slotspot.ru/casinos/1win/)
+- **Отзывы 1win**: [https://slotspot.ru/casinos/1win/reviews/ ](https://slotspot.ru/casinos/1win/) 
 
-- **Промокоды казино (актуальные)**: https://slotspot.ru/promo-codes/  
-- **Бонусы и фриспины казино**: https://slotspot.ru/bonuses/  
-- **Где играть в слоты**: https://slotspot.ru/where-to-play/  
+- **Промокоды казино (актуальные)**: [https://slotspot.ru/promo-codes/ ](https://slotspot.ru/casinos/1win/promo-code/) 
+- **Бонусы и фриспины казино**: [https://slotspot.ru/promo-codes/ ](https://slotspot.ru/casinos/1win/promo-code/) 
+- **Где играть в слоты**: [https://slotspot.ru/where-to-play/  ](https://slotspot.ru/slots/the-dog-house-megaways/where-to-play.html)
 
 ---
 
 ## Промокоды казино и бонусы
 Собираем **промокоды казино**, рассказываем как их активировать и на что смотреть: вейджер, лимиты, сроки, требования к выводу.  
-👉 Перейти: https://slotspot.ru/promo-codes/
+👉 Перейти: [https://slotspot.ru/promo-codes/ ](https://slotspot.ru/casinos/1win/promo-code/) 
 
 ---
 
 ## Обзоры казино: где играть и что важно проверить
 Короткие обзоры казино: условия бонусов, платежи, скорость вывода, поддержка и частые вопросы.  
-👉 Каталог казино: https://slotspot.ru/casinos/
+👉 Каталог казино: [https://slotspot.ru/casinos/](https://slotspot.ru/#casinos)
 
 ---
 
 ## Обзоры слотов и DEMO-режим
 Если ты новичок — начинай с DEMO: так проще понять механику и волатильность без риска.  
-👉 Демо-слоты: https://slotspot.ru/demo/  
-👉 Обзоры слотов: https://slotspot.ru/slots/
+👉 Демо-слоты: [https://slotspot.ru/demo/  ](https://slotspot.ru/slots/gates-of-anubis/demo.html)
+👉 Обзоры слотов: [https://slotspot.ru/slots/](https://slotspot.ru/#slots)
 
 ---
 
@@ -67,7 +65,7 @@ SlotSpot.ru — сайт для игроков: **промокоды казин�
 
 ## Контакты / Сотрудничество
 Если ты представитель бренда или хочешь добавить обновления по бонусам — напиши через форму на сайте:  
-https://slotspot.ru/contact/
+[https://slotspot.ru/about/](https://slotspot.ru/about.html)
 
 ---
 
