@@ -1,6 +1,6 @@
 <p align="center">
-  <a href="[https://lkhv.cc/184a]" target="_blank" rel="noopener">
-    <img src="/profile/og-1win.jpg" alt="SlotSpot.ru — промокоды 1win" width="100%">
+  <a href="https://slotspot.ru">
+    <img src="og-1win.jpg" alt="SlotSpot.ru — промокоды казино, бонусы и обзоры слотов" width="100%">
   </a>
 </p>
 
