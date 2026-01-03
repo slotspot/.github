@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="assets/og-1win.jpg" alt="SlotSpot.ru — промокоды казино, бонусы и обзоры слотов" width="100%">
+  <img src="profile/og-1win.jpg" alt="SlotSpot.ru — промокоды казино, бонусы и обзоры слотов" width="100%">
 </p>
 
 # SlotSpot.ru — промокоды казино, бонусы и обзоры слотов 🎰
